@@ -26,7 +26,7 @@
 
   ### Modo de Preparo
 
-  
+  dasare
 
   1. Em uma panela, misture o frango, o alho, a maionese, o sal e a pimenta.
   2. Em uma frigideira grande, derreta a manteiga e doure a cebola.
